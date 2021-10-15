@@ -1,0 +1,2 @@
+# aldurra
+Trade in tecnology
